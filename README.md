@@ -10,3 +10,13 @@
   * sadler 26 or maybe 29 {£ ?}
   * Macwester 27
   * Leisure 27SL, which is a badged up Mirage 2700
+
+## Cockpit awning
+### Habitent
+* https://www.habitent.com/gallery/ ~ £500
+* https://www.pbo.co.uk/gear/pbo-tested-habitent-sirocco-45178
+* http://www.ybw.com/forums/showthread.php?426993-Habitent-cockpit-enclosure-a-quick-new-owner-s-review
+* http://www.ybw.com/forums/archive/index.php/t-330897.html
+
+### CJ Marine
+* https://www.cjmarine.co.uk/westerly-centaur-cockpit-enclosure
